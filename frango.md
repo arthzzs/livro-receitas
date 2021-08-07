@@ -18,4 +18,4 @@
 4. Coloque a segunda mistura em cima da primeira e tape, agitando bem, para que a farinha e os ingredientes se misturem bem aos pedaços de frango.
 5. Frite em panela alta, com óleo bem quente, deixando dourar (aproximadamente 15 minutos).
 6. Retire, coloque em papel toalha para escorrer e disponha numa travessa, enfeitando com salsa picada.
-7. Ficam bem crocantes, tais os que são feitos em lanchonetes especializadas, a grande diferença é o sabor bem mais agradável e caseiro.
+7. Ficam bem crocantes, tais os que são feitos em lanchonetes especializadas, a grande diferença é o sabor bem mais agradável e caseiro..
